@@ -11,3 +11,7 @@ Otec Alžbety II.
 ## Mária z Tecku
 
 Stará mama Alžbety II. z otcovej strany.
+
+## Kráľovná Šarlota
+
+Prastará mama Alžbety II.
